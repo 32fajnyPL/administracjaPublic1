@@ -1,0 +1,2 @@
+# administracja2gitDesk
+ 
